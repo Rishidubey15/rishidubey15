@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **dubey.rishi66.rd@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CBhy2yILu71Imr-JvXaplJZivaK-0WfV/view?usp=drivesdkview?usp=drive_link](https://drive.google.com/file/d/1oEJ3nI1_rNAnkY8Z_FAPX4Gk6K6fZVkQ/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1CBhy2yILu71Imr-JvXaplJZivaK-0WfV/view?usp=drivesdk](https://drive.google.com/file/d/1CBhy2yILu71Imr-JvXaplJZivaK-0WfV/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
